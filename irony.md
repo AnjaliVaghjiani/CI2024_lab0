@@ -1,0 +1,1 @@
+"They say there are no dumb questions. I guess mine just keeps breaking that rule."
